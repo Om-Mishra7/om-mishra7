@@ -1,1 +1,1 @@
-[![Holopin Collection](https://holopin.me/ommishra7)]
+![Holopin Collection](https://holopin.me/ommishra7)
